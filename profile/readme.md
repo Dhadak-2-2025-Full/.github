@@ -8,9 +8,9 @@ How to Download and Watch Dhadak 2 (2025) for Free in Dual Audio
 
 
 🔹 **Watch Now:**  
-➤ [🌍📺📱👉 Dhadak 2 (2025) Full Movie](http://collabcue.online/ZnkMR)  
-➤ [🌍📺📱👉 Dhadak 2 (2025) Full Movie](http://collabcue.online/ZnkMR)  
-➤ [🌍📺📱👉 Dhadak 2 (2025) Full Movie Download](http://collabcue.online/ZnkMR)  
+➤ [🌍📺📱👉 Dhadak 2 (2025) Full Movie](http://collabcue.online/Jhazy)  
+➤ [🌍📺📱👉 Dhadak 2 (2025) Full Movie](http://collabcue.online/Jhazy)  
+➤ [🌍📺📱👉 Dhadak 2 (2025) Full Movie Download](http://collabcue.online/Jhazy)  
 
 📖 Plot Overview
 
